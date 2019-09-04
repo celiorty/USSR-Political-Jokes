@@ -1,0 +1,1 @@
+# USSR-Political-Jokes
